@@ -1,4 +1,4 @@
-# WHMCS-WEB-PLAYER-DECODED
+# WHMCSSMARTERS-WEB-PLAYER-DECODED
 
 Info: You will receive fully decoded and nulled version of WHMCSSmarters Web Player.
 
